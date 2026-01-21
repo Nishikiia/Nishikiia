@@ -1,12 +1,11 @@
 Hi! I am Britney! ㄟ(≧◇≦)ㄏ
 ===============================================================================================================================
 
-Computer and Information Tech | Computer Science
+Computer and Information Tech
 ------------------------
 
 * 🌍  I'm based in Mission, TX
 * ✉️  You can contact me at [camobrit@gmail.com](mailto:camobrit@gmail.com)
-* ⚡  CARRRLLLLLL
 
 ### Skills
 
